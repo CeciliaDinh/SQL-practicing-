@@ -1,3 +1,3 @@
-# Marketing Channels Analysis 
+# Sales & Customer Insight 
 ### Overview: 
 
